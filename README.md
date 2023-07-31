@@ -1,9 +1,11 @@
 
 	My names Noctis, read my rentry.
 
-	Minors on 18+ DNI | -15 on safe DNI.
+	Minors on 18+ DNI & -15 on safe DNI.
  
 	Anti recovery, Anti IRLs, & weirdos fuck off.
+
+	DNI if you dislike me, my partner, or my friends. 
 
 ![d1v0v73-51bed4e1-8a79-4ef4-a63c-5203069b353a](https://github.com/xvnoctis/xvnoctis/assets/126313739/19ffa3af-1f28-4377-b188-0b6a33e6c727)
 ![d9kn5p0-f1cf1452-3f4b-4a30-921f-8dd18ad8c7c1](https://github.com/xvnoctis/xvnoctis/assets/126313739/54a21827-a262-41ab-8936-0586f5ef58e8)
