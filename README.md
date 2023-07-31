@@ -11,6 +11,11 @@ how th efuck do i do this
 ![d1eqq2n-ef6daa11-ce48-43c7-b70b-5ac9c848407f](https://github.com/xvnoctis/xvnoctis/assets/126313739/ff23e549-8556-4442-b10d-a88137c70911)
 ![deftones_rose_stamp_by_ignisalatus_d1ues3a-fullview](https://github.com/xvnoctis/xvnoctis/assets/126313739/09c69bed-e19f-4326-af9f-fce8c93ebe64)
 ![placebo_stamp_by_ignisalatus_d1uewg4-fullview](https://github.com/xvnoctis/xvnoctis/assets/126313739/ce746486-2bb1-4cc5-bfa4-07d9122e763b)
-![_deftones__stamp_2_by_ireallywish_d35fzob-fullview](https://github.com/xvnoctis/xvnoctis/assets/126313739/069ba81f-9867-4e27-ad3f-c9615c121496)![dpg4su-9d0968da-5d1d-42ff-ad52-ef807b008a51](https://github.com/xvnoctis/xvnoctis/assets/126313739/c1b0eda6-882d-41fe-b0d8-dccbc77732d5)![seether_stamp_by_allifearmeansnothing_d20mo5q-fullview](https://github.com/xvnoctis/xvnoctis/assets/126313739/96201ad3-4097-41d5-bcaa-811e7cfd6120)
+![_deftones__stamp_2_by_ireallywish_d35fzob-fullview](https://github.com/xvnoctis/xvnoctis/assets/126313739/069ba81f-9867-4e27-ad3f-c9615c121496)![dpg4su-9d0968da-5d1d-42ff-ad52-ef807b008a51](https://github.com/xvnoctis/xvnoctis/assets/126313739/c1b0eda6-882d-41fe-b0d8-dccbc77732d5)![seether_stamp_by_allifearmeansnothing_d20mo5q-fullview](https://github.com/xvnoctis/xvnoctis/assets/126313739/96201ad3-4097-41d5-bcaa-811e7cfd6120)![depechemode_stamp_by_stumm47_d2axay2-fullview](https://github.com/xvnoctis/xvnoctis/assets/126313739/122ff92b-6a78-4e4f-a94c-335045e10b90)
+![black_flag_stamp_3_by_da__bogeyman_d344rxc-fullview](https://github.com/xvnoctis/xvnoctis/assets/126313739/5c2e665c-cccd-4eed-85ae-d4c87360f054)![lost_boys_stamp_by_meljoy68_d1o5tez-fullview](https://github.com/xvnoctis/xvnoctis/assets/126313739/a645ef16-1235-46d6-a6d3-36367d7779df)![d1fu5ao-d51876a1-552f-4972-8bd9-d662976e81df](https://github.com/xvnoctis/xvnoctis/assets/126313739/166cb984-3b09-43f8-b348-6d374ede46c4)![d2nqit7-84e1dd65-8036-49e2-819d-126c39623ddb](https://github.com/xvnoctis/xvnoctis/assets/126313739/78493b3f-4145-4060-bc83-0c79bc5123f3)
+
+
+
+
 
 
