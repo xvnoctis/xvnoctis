@@ -11,7 +11,7 @@ $${\color{red}─\space ──\space\space PRETTY\space\space HATE\space\space M
 > Whisper to interact or else I wont see your message.
 
 
-  Leave me a message? :) [My Guestbook](https://deft0nes.123guestbook.com/)
+   [GUESTBOOK](https://deft0nes.123guestbook.com/) ${\color{red}─}$ [RENTRY](https://rentry.co/xvnoctis) ${\color{red}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{red}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5)
 
 ![d1v0v73-51bed4e1-8a79-4ef4-a63c-5203069b353a](https://github.com/xvnoctis/xvnoctis/assets/126313739/19ffa3af-1f28-4377-b188-0b6a33e6c727)
 ![d9kn5p0-f1cf1452-3f4b-4a30-921f-8dd18ad8c7c1](https://github.com/xvnoctis/xvnoctis/assets/126313739/54a21827-a262-41ab-8936-0586f5ef58e8)
