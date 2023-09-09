@@ -1,15 +1,14 @@
+$${\color{red}─\space ──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─}$$
 
-	My names Noctis, read my rentry. 20 y/o
+> My names ${\color{red}Noctis}$ , read my rentry. 20 y/o
 
-			Minors on 18+ DNI & -15 on safe DNI.
- 
-	Anti recovery, Anti IRLs, & weirdos fuck off.
+> 	Minors on 18+ DNI & -15 on safe DNI.
 
-			DNI if you dislike me, my partner, or my friends. 
+> Anti recovery, Anti IRLs, & weirdos fuck off.
 
-	Whisper to interact or else I wont see your message.
- 	
-									Lots of stamps & whatever else I add.
+> 	DNI if you dislike me, my partner, or my friends. 
+
+> Whisper to interact or else I wont see your message.
 
 
   Leave me a message? :) [My Guestbook](https://deft0nes.123guestbook.com/)
