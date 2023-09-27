@@ -8,7 +8,7 @@ $${\color{red}─\space ──\space\space PRETTY\space\space HATE\space\space M
 
 > 	DNI if you dislike me, my partner, or my friends. 
 
-> Whisper to interact or else I wont see your message.
+> Whisper to interact or else I wont see your message. Off tab 99% of the time.
 
 
    [GUESTBOOK](https://deft0nes.123guestbook.com/) ${\color{red}─}$ [SENTRY](https://sentrytwo.com/@willgraham) ${\color{red}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{red}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5) ${\color{red}─}$ [SENTRY HOARD](https://sentrytwo.com/@myurls)
