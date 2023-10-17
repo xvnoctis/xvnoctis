@@ -1,6 +1,6 @@
-$${\color{red}─\space ──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─}$$
+$${\color{red}─\space──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─}$$
 
-> My names ${\color{red}NOCTIS}$ , read my sentry. 20 y/o
+> My names NOCTIS , read my sentry. 20 y/o
 
 > 	Minors on 18+ DNI & -15 on safe DNI.
 
