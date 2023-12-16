@@ -1,4 +1,4 @@
-$${\color{purple}⌜★\space─\space──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─\space★⌟}$$
+$${\color{magenta}⌜★\space─\space──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─\space★⌟}$$
 
 > My names NOCTIS , read my sentry. 20 y/o
 
