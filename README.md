@@ -1,4 +1,4 @@
-$${\color{red}⌜★\space─\space──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─\space★⌟}$$
+$${\color{purple}⌜★\space─\space──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─\space★⌟}$$
 
 > My names NOCTIS , read my sentry. 20 y/o
 
@@ -11,7 +11,7 @@ $${\color{red}⌜★\space─\space──\space\space PRETTY\space\space HATE\sp
 > Whisper to interact or else I wont see your message. Off tab 99% of the time.
 
 
- [CARRD](https://mizumono.crd.co/#) ${\color{red}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{red}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5) ${\color{red}─}$ [SENTRY HOARD](https://sntry.cc/@myurls)
+ [CARRD](https://mizumono.crd.co/#) ${\color{purple}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{purple}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5) ${\color{purple}─}$ [SENTRY HOARD](https://sntry.cc/@myurls)
 
 ![d1v0v73-51bed4e1-8a79-4ef4-a63c-5203069b353a](https://github.com/xvnoctis/xvnoctis/assets/126313739/19ffa3af-1f28-4377-b188-0b6a33e6c727)
 ![d9kn5p0-f1cf1452-3f4b-4a30-921f-8dd18ad8c7c1](https://github.com/xvnoctis/xvnoctis/assets/126313739/54a21827-a262-41ab-8936-0586f5ef58e8)
