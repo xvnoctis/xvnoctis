@@ -1,6 +1,6 @@
 $${\color{magenta}⌜★\space─\space──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─\space★⌟}$$
 
-> My names NOCTIS or ACCARDI , read my sentry. 20 y/o
+> My names NOCTIS or ACCARDI , read my carrd. 20 y/o
 
 > 	Minors on 18+ DNI & -15 on safe DNI.
 
