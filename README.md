@@ -8,7 +8,7 @@ $$Anti\space\space recovery\space\space, \space\space Anti\space\space IRLs\spac
 
 $$DNI\space\space if\space\space you\space\space dislike\space\space me\space\space, \space\space my\space\space partner\space\space,\space\space or\space\space my\space\space friends\space\space.$$
 
-$$Whisper\space\space to\space\space interact\space\space or\space\space else\space\space I\space\space wont\space\space see\space\space your\space\space message.\space\space$$
+$$Whisper\space\space to\space\space interact\space\space or\space\space else\space\space I\space\space wont\space\space see\space\space your\space\space message\space\space.$$
 
 
 [CARRD](https://aroma.crd.co/) ${\color{red}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{red}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5)
