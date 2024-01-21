@@ -1,17 +1,17 @@
 $${\color{red}⌜★\space─\space──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─\space★⌟}$$
 
-> My names NOCTIS or ADAM , read my carrd. 20 y/o
+$$My\space\space names\space\space NOCTIS\space\space or\space\space ADAM\space\space ,\space read\space\space my\space\space carrd. \space\space20\space\space y/o$$
 
-> 	Minors on 18+ DNI & -15 on safe DNI.
+$$Minors\space\space on \space\space18\space\space DNI\space\space +\space\space -15\space\space on\space\space safe\space\space DNI$$
 
-> Anti recovery, Anti IRLs, & weirdos fuck off.
+$$Anti\space\space recovery\space\space, \space\space Anti\space\space IRLs\space\space,\space\space + \space\space weirdos\space\space fuck \space\space off\space\space.$$
 
-> 	DNI if you dislike me, my partner, or my friends. 
+$$DNI\space\space if\space\space you\space\space dislike\space\space me\space\space, \space\space my\space\space partner\space\space,\space\space or\space\space my\space\space friends\space\space.$$
 
-> Whisper to interact or else I wont see your message. Off tab 99% of the time.
+$$Whisper\space\space to\space\space interact\space\space or\space\space else\space\space I\space\space wont\space\space see\space\space your\space\space message.\space\space$$
 
 
- [CARRD](https://aroma.crd.co/) ${\color{red}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{red}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5)
+[CARRD](https://aroma.crd.co/) ${\color{red}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{red}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5)
 
 ![d1v0v73-51bed4e1-8a79-4ef4-a63c-5203069b353a](https://github.com/xvnoctis/xvnoctis/assets/126313739/19ffa3af-1f28-4377-b188-0b6a33e6c727)
 ![d9kn5p0-f1cf1452-3f4b-4a30-921f-8dd18ad8c7c1](https://github.com/xvnoctis/xvnoctis/assets/126313739/54a21827-a262-41ab-8936-0586f5ef58e8)
