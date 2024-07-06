@@ -6,12 +6,12 @@ $$Minors\space\space on \space\space18\space\space DNI\space\space +\space\space
 
 $$Anti\space\space recovery\space\space, \space\space Anti\space\space IRLs\space\space,\space\space + \space\space weirdos\space\space fuck \space\space off\space\space.$$
 
-$$DNI\space\space if\space\space you\space\space dislike\space\space me\space\space, \space\space my\space\space partner\space\space,\space\space or\space\space my\space\space friends\space\space.$$
+$$DNI\space\space if\space\space you\space\space dislike\space\space me\space\space, \space\space or \space\space \space\space my\space\space friends\space\space.$$
 
 $$Whisper\space\space to\space\space interact\space\space or\space\space else\space\space I\space\space wont\space\space see\space\space your\space\space message\space\space.$$
 
 
-[RENTRY](https://rentry.co/revolver) ${\color{red}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{red}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5)
+RENTRY ${\color{red}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{red}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5)
 
 A pixel pony does not equal "feeding delusions" btw! <3
 
