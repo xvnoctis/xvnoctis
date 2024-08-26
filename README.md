@@ -1,4 +1,4 @@
-$${\color{cyan}⌜★\space─\space──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─\space★⌟}$$
+$${\color{orange}⌜★\space─\space──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─\space★⌟}$$
 
 $$My\space\space names\space\space NOCTIS\space\space or\space\space ADAM\space\space ,\space read\space\space my\space\space carrd. \space\space21\space\space y/o$$
 
@@ -11,7 +11,7 @@ $$DNI\space\space if\space\space you\space\space dislike\space\space me\space\sp
 $$Whisper\space\space to\space\space interact\space\space or\space\space else\space\space I\space\space wont\space\space see\space\space your\space\space message\space\space.$$
 
 
-[RENTRY](https://rentry.co/wolfmoon-) ${\color{cyan}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{cyan}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5)
+[RENTRY](https://rentry.co/wolfmoon-) ${\color{orange}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{orange}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5)
 
 A pixel pony does not equal "feeding delusions" btw! <3
 
