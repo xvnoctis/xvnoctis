@@ -9,6 +9,12 @@ $$Anti\space\space recovery\space\space, \space\space Anti\space\space IRLs\spac
 $$DNI\space\space if\space\space you\space\space dislike\space\space me\space\space, \space\space or \space\space \space\space my\space\space friends\space\space.$$
 
 $$Whisper\space\space to\space\space interact\space\space or\space\space else\space\space I\space\space wont\space\space see\space\space your\space\space message\space\space.$$
+<p align="center">
+  <img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=238ae5e6raw=true" alt="Sublime's custom image"/>
+</p>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=tn772at7vmvojbim4ltard2yy&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&bar_color=ff0000)](https://github.com/kittinan/spotify-github-profile)
+
 
 
 [INFO](https://rentry.co/stigmata/) ${\color{red}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{red}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5) ${\color{red}─}$ [ATABOOK](https://xvnoctis.atabook.org/)
