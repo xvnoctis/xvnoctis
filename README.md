@@ -9,7 +9,12 @@ $$Anti\space\space recovery\space\space, \space\space Anti\space\space IRLs\spac
 $$DNI\space\space if\space\space you\space\space dislike\space\space me\space\space, \space\space or \space\space \space\space my\space\space friends\space\space.$$
 
 $$Whisper\space\space to\space\space interact\space\space or\space\space else\space\space I\space\space wont\space\space see\space\space your\space\space message\space\space.$$
-![](https://komarev.com/ghpvc/?username=xvnoctis&label=hydra+++&color=73682f)
+
+<p align="center">
+<h4 align="center"
+
+ ![](https://komarev.com/ghpvc/?username=xvnoctis&label=VIEWS+++&color=FF0000)
+
 <p align="center">
   <img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=238ae5e6raw=true" alt="Sublime's custom image"/>
 </p>
