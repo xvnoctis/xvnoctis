@@ -1,8 +1,8 @@
 $${\color{red}⌜★\space─\space──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─\space★⌟}$$
 
-$$My\space\space names\space\space NOCTIS\space\space or\space\space ADAM\space\space ,\space read\space\space my\space\space carrd. \space\space21\space\space y/o$$
+$$My\space\space names\space\space NOCTIS\space\space or\space\space ADAM\space\space ,\space read\space\space my\space\space info. \space\space21\space\space y/o$$
 
-$$Minors\space\space on \space\space18\space\space DNI\space\space +\space\space -15\space\space on\space\space safe\space\space DNI$$
+$$Minors\space\space on \space\space18\space\space DNI\space\space +\space\space -17\space\space on\space\space safe\space\space DNI$$
 
 $$Anti\space\space recovery\space\space, \space\space Anti\space\space IRLs\space\space,\space\space + \space\space weirdos\space\space fuck \space\space off\space\space.$$
 
