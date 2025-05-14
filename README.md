@@ -19,6 +19,8 @@ $$Whisper\space\space to\space\space interact\space\space or\space\space else\sp
   <img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=238ae5e6raw=true" alt="Sublime's custom image"/>
 </p>
 
+[SEND/DRAW ME SMTHIN!](https://hexagram.straw.page/)
+
 [INFO](https://rentry.co/stigmata/) ${\color{red}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{red}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5) ${\color{red}─}$ [ATABOOK](https://xvnoctis.atabook.org/)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=tn772at7vmvojbim4ltard2yy&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&bar_color=ff0000)](https://github.com/kittinan/spotify-github-profile)
