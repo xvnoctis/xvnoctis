@@ -22,8 +22,7 @@ $${\color{#CC0000}⌜★\space─\space──\space\space PRETTY\space\space HAT
 </p>
 
 
-![](https://64.media.tumblr.com/3bce5f6418887a30a04170e466883de3/tumblr_pg1z89G9MH1x4h7wbo1_500.gifv)
-
+![](https://64.media.tumblr.com/95314c44942639b274740f8105baba04/a7cac75b2f929645-f5/s100x200/2f420e20a6e320978023df5d7fbf23928951d6dd.gifv)
 
 
 
