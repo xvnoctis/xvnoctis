@@ -12,7 +12,7 @@ $${\color{#CC0000}⌜★\space─\space──\space\space PRETTY\space\space HAT
   <p align="center">
 
 <p align="center">
-22‎ ‎ ‎ ـــــــــــــــــﮩ٨ـ ‎ ‎ ‎ HE\HIM
+22‎ ‎⁽⁰³/¹³⁾ ‎ ـــــــــــــــــﮩ٨ـ ‎ ‎ ‎ HE\HIM
 </p>
 <p align="center">
 -18 & basic dni ‎ ‎  ‎ ‹𝟹 08/01   ‎  ‎ ‎  ‎ w2i
