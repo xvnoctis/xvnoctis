@@ -30,7 +30,10 @@ $${\color{#CC0000}⌜★\space─\space──\space\space PRETTY\space\space HAT
 ![](https://64.media.tumblr.com/40898ac9be816e6c53706ac516eab247/933a255299eb26e3-b5/s400x600/e002f36333bf0f412547be591d33ed600fd2c2ae.gifv)
 
 
-
+<p align="center">
+ <a href="https://hexagram.straw.page/">STRAWP</a> ﹟
+ <a href="https://www.last.fm/user/cybpnk">LASTFM</a> 
+<p align="center">
 
 
 
