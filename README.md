@@ -15,19 +15,12 @@ $${\color{#CC0000}⌜★\space─\space──\space\space PRETTY\space\space HAT
 22‎ ‎ ‎ ـــــــــــــــــﮩ٨ـ ‎ ‎ ‎ HE\HIM
 </p>
 <p align="center">
--18 & basic dni ‎  ‎  ‎ w2i
+-18 & basic dni ‎ ‎  ‎ ‹𝟹 08/01   ‎  ‎ ‎  ‎ w2i
 </p>
 <p align="center">  
 <img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=238ae5e6raw=true" alt="Sublime's custom image"/>
 </p>
 
-[SEND/DRAW ME SMTHIN!](https://hexagram.straw.page/)
-
-[INFO](https://rentry.co/stigmata/) ${\color{#CC0000}─}$ [LAST.FM](https://www.last.fm/user/cybpnk) ${\color{#CC0000}─}$ [SPOTIFY](https://open.spotify.com/user/tn772at7vmvojbim4ltard2yy?si=ea17f7a69ce94db5) ${\color{#CC0000}─}$ [ATABOOK](https://xvnoctis.atabook.org/)
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=tn772at7vmvojbim4ltard2yy&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&bar_color=ff0000)](https://github.com/kittinan/spotify-github-profile)
-
-A pixel pony does not equal "feeding delusions" btw! <3
 
 ![d1v0v73-51bed4e1-8a79-4ef4-a63c-5203069b353a](https://github.com/xvnoctis/xvnoctis/assets/126313739/19ffa3af-1f28-4377-b188-0b6a33e6c727)
 ![d9kn5p0-f1cf1452-3f4b-4a30-921f-8dd18ad8c7c1](https://github.com/xvnoctis/xvnoctis/assets/126313739/54a21827-a262-41ab-8936-0586f5ef58e8)
