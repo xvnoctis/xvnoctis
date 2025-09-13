@@ -1,18 +1,24 @@
+
 $${\color{#CC0000}⌜★\space─\space──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─\space★⌟}$$
 
-$$My\space\space names\space\space REZNOR\space\space or\space\space ADAM\space\space \space\space22\space\space y/o$$
-
-$$DNI\space\space if\space\space you\space\space dislike\space\space me\space\space,\space\space my\space\space fiancé\space\space, \space\space or\space\space my\space\space friends\space\space.$$
-
-$$Whisper\space\space to\space\space interact\space\space or\space\space else\space\space I\space\space wont\space\space see\space\space your\space\space message\space\space.$$
+<p align="center">
+⌖ <a href="https://rentry.co/stigmata">REZNOR</a> ⌖
 
 <p align="center">
 <h4 align="center"
 
- ![](https://komarev.com/ghpvc/?username=xvnoctis&label=VIEWS+++&color=FF0000)
+![](https://komarev.com/ghpvc/?username=xvnoctis&label=VIEWS+++&color=FF0000)
+
+  <p align="center">
 
 <p align="center">
-  <img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=238ae5e6raw=true" alt="Sublime's custom image"/>
+22‎ ‎ ‎ ـــــــــــــــــﮩ٨ـ ‎ ‎ ‎ HE\HIM
+</p>
+<p align="center">
+-18 & basic dni ‎  ‎  ‎ w2i
+</p>
+<p align="center">  
+<img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=238ae5e6raw=true" alt="Sublime's custom image"/>
 </p>
 
 [SEND/DRAW ME SMTHIN!](https://hexagram.straw.page/)
