@@ -29,6 +29,12 @@ $${\color{#CC0000}⌜★\space─\space──\space\space PRETTY\space\space HAT
 
 ![](https://64.media.tumblr.com/40898ac9be816e6c53706ac516eab247/933a255299eb26e3-b5/s400x600/e002f36333bf0f412547be591d33ed600fd2c2ae.gifv)
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=tn772at7vmvojbim4ltard2yy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false">
+  </a>
+</p>
+
 
 <p align="center">
  <a href="https://hexagram.straw.page/">STRAWP</a> ﹟
