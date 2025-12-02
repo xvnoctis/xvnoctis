@@ -37,7 +37,7 @@ $${\color{#CC0000}⌜★\space─\space──\space\space PRETTY\space\space HAT
 
 
 <p align="center">
- <a href="https://hexagram.straw.page/">STRAWP</a> ﹟
+ <a href="https://xvnoctis.atabook.org/">ATABOOK</a> ﹟
  <a href="https://www.last.fm/user/cybpnk">LASTFM</a> 
 <p align="center">
 
