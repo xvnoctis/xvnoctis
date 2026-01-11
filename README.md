@@ -2,7 +2,7 @@
 $${\color{#CC0000}⌜★\space─\space──\space\space PRETTY\space\space HATE\space\space MACHINE\space\space ──\space ─\space★⌟}$$
 
 <p align="center">
-⌖ <a href="https://rentry.co/stigmata">REZNOR</a> ⌖
+⌖ <a href="https://rentry.co/starfucker">REZNOR</a> ⌖
 
 <p align="center">
 <h4 align="center"
