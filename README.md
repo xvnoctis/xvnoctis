@@ -30,7 +30,7 @@ $${\color{#FF69B4}PRETTY\space\space HATE\space\space MACHINE}$$
 
 
 <p align="center">
- <a href="https://revolvers.straw.page/">STRAWP</a> ‎ ﹟ 
+ <a href="https://fistfucker.straw.page/">STRAWP</a> ‎ ﹟ 
  <a href="https://www.last.fm/user/cybpnk">LASTFM</a> 
 <p align="center">
 
