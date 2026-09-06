@@ -1,6 +1,10 @@
 
-$${\color{#FF69B4}PRETTY\space\space HATE\space\space MACHINE}$$
+<p align="center">
+<h4 align="center"
 
+![](https://i.imgur.com/z2RdmuT.png)
+
+  <p align="center">
 
 <p align="center">
 <h4 align="center"
