@@ -14,7 +14,7 @@
   <p align="center">
 
 <p align="center">
-23 ‎⁽⁰³ ¹³⁾　　(¬_¬")　　he/her
+23 ‎⁽⁰³ ¹³⁾　　(¬_¬")　　he/her　　pro-fic
 </p>
 <p align="center">
 
