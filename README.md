@@ -24,7 +24,7 @@
 </p>
 
 
-![](https://i.imgur.com/8eG9ZDM.png)
+![](https://i.imgur.com/PGLGw2b.png)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -37,6 +37,11 @@
  <a href="https://fistfucker.straw.page/">STRAWP</a> ‎ ﹟ 
  <a href="https://www.last.fm/user/cybpnk">LASTFM</a> 
 <p align="center">
+<h4 align="center"
+
+![](https://i.imgur.com/zGhN7C1.png)![](https://i.imgur.com/nHiwCC0.png)![](https://i.imgur.com/j5L27q4.gif)![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/10c22cde-b73b-435e-a7d6-872e031e7b52/daedhol-d7ae2153-2ee1-40a7-8f7e-dd7b06a0a5f9.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8xMGMyMmNkZS1iNzNiLTQzNWUtYTdkNi04NzJlMDMxZTdiNTIvZGFlZGhvbC1kN2FlMjE1My0yZWUxLTQwYTctOGY3ZS1kZDdiMDZhMGE1ZjkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.3CEpnrxCndKK6cK5efAxSm8LmrRGT6R60pfWObcZtpI)
+
+  <p align="center">
 
 
 
