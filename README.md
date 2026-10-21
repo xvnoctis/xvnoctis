@@ -2,14 +2,14 @@
 <p align="center">
 <h4 align="center"
 
-![](https://i.imgur.com/z2RdmuT.png)
+![](https://komarev.com/ghpvc/?username=xvnoctis&label=VIEWS+++&color=FF69B4)
 
   <p align="center">
 
 <p align="center">
 <h4 align="center"
 
-![](https://komarev.com/ghpvc/?username=xvnoctis&label=VIEWS+++&color=FF69B4)
+![](https://i.imgur.com/z2RdmuT.png)
 
   <p align="center">
 
