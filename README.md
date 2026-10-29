@@ -24,7 +24,7 @@
 </p>
 
 
-![](https://i.imgur.com/PGLGw2b.png)
+
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
